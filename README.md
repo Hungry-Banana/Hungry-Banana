@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hungry-Banana!
-- 👀 I’m interested in CyberSecurity, AI, Automation, Science, and Learning just about anything!
+- 👀 Interested in CyberSecurity, AI, Automation, Science, and Learning just about anything!
 - 🌱 Always continuing to learn!
-- 💞️ I’m looking to collaborate on any projects of intrest!
+- 💞️ Looking to collaborate on any projects of intrest!
 - 📫 How to reach me - Discord hungrybanana
 - Check out the YouTube channel [YouTube](https://www.youtube.com/@hungry_banana)
 - Come Join the discord server over at [Discord](https://discord.com/invite/ssyuH3cGjY)
