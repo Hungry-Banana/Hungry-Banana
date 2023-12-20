@@ -3,5 +3,5 @@
 - 🌱 Always continuing to learn!
 - 💞️ I’m looking to collaborate on any projects of intrest!
 - 📫 How to reach me - Discord hungrybanana
-- Check out the YouTube channel https://www.youtube.com/@hungry_banana
-- Come Join the discord server over at discord.gg/ssyuH3cGjY
+- Check out the YouTube channel [YouTube](https://www.youtube.com/@hungry_banana)
+- Come Join the discord server over at [Discord](https://discord.com/invite/ssyuH3cGjY)
