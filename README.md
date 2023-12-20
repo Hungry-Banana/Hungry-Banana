@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hungry-Banana!
+- 👀 I’m interested in CyberSecurity, AI, Automation, Science, and Learning just about anything!
+- 🌱 Always continuing to learn!
+- 💞️ I’m looking to collaborate on any projects of intrest!
+- 📫 How to reach me - Discord hungrybanana
