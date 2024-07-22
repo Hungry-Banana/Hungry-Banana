@@ -5,3 +5,8 @@
 - 📫 How to reach me - Discord hungrybanana
 - Check out the [YouTube Channel](https://www.youtube.com/@hungry_banana)
 - Come Join the [Discord Server](https://discord.com/invite/ssyuH3cGjY)
+
+# Certifications
+- OSCP
+- Security+
+- CCNA
